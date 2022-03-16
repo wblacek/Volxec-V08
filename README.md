@@ -1,6 +1,6 @@
 Stream Guide! Today, The Batman free online streaming, get now full unlimited movie access for free without subscription.
 
-<h4><u><a href="https://www.google.com/url?q=https%3A%2F%2Fmuvizone.site%2Fen%2Fmovie%2F425909%2Fghostbusters-afterlife&sa=D&sntz=1&usg=AOvVaw06N8QVA5QDnd-TFhhLbiC-" target="_blank" rel="noreferrer noopener nofollow">Check out here to watch full movie now</a></u></h4>
+<h4><u><a href="https://t.ly/jnIm" target="_blank" rel="noreferrer noopener nofollow">Check out here to watch full movie now</a></u></h4>
 
 <img border="0" data-original-height="445" data-original-width="300" height="445" src="https://i.imgur.com/p78x8ba.jpegg" width="300">
 
